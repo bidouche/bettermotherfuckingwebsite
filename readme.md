@@ -1,1 +1,1 @@
-Clique <a href="http://bettermotherfuckingwebsite.com/">ici</a> pour rejoindre le meilleur site au monde
+Clique <a href="https://github.com/bidouche/bettermotherfuckingwebsite">ici</a> pour rejoindre le meilleur site au monde
